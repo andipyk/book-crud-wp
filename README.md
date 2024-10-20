@@ -1,1 +1,3 @@
-# Plugin Wordpress Untuk Buku by toko zikumbang (Andi Syafrianda)
+# Plugin Wordpress Untuk Buku by toko Digikuy
+
+https://shopee.co.id/zikumbang
